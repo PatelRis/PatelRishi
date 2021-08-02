@@ -1,1 +1,1 @@
-# PatelRishi
+# PatelRis
